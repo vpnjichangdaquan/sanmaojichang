@@ -9,7 +9,7 @@
 
 👉 [三毛机场注册入口](https://g-3.三毛机场.com/#/register?code=YgrqYslp)
 
-要是无法访问，可以[点击此处](https://aaa.fwh.is/)查看其他可用机场。
+要是无法访问，可以[点击此处](https://wwaann.com/)查看其他可用机场。
 
 
 ---
