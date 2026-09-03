@@ -7,7 +7,7 @@
 
 ## 🔗 官方注册链接（点击进入）
 
-👉 [三毛机场注册入口](https://g-3.三毛机场.com/#/register?code=YgrqYslp)
+👉 [三毛机场注册入口](https://b.smjcgw.com/#/register?code=YgrqYslp)
 
 要是无法访问，可以[点击此处](https://wwaann.com/)查看其他可用机场。
 
