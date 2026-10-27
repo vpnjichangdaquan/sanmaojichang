@@ -7,7 +7,7 @@
 
 ## 🔗 官方注册链接（点击进入）
 
-👉 [三毛机场注册入口](https://gw-2.smjc2.com/#/register?code=zP6hpbpa)
+👉 [三毛机场注册入口](https://a.wwaann.com/?s=smjc)
 
 要是无法访问，可以[点击此处](https://wwaann.com/)查看其他可用机场。
 
@@ -119,7 +119,7 @@ VPN、机场推荐、Clash节点、V2Ray订阅、SSR机场、梯子推荐、科�
 - 禁止用于任何非法用途
 - 作者不承担任何使用后果
 
-👉 [三毛机场注册入口](https://gw-2.smjc2.com/#/register?code=zP6hpbpa)
+👉 [三毛机场注册入口](https://a.wwaann.com/?s=smjc)
 
 要是无法访问，可以[点击此处](https://wwaann.com/)查看其他可用机场。
 
